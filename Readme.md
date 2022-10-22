@@ -90,6 +90,7 @@ Make sure you [follow daily.dev on Twitter](https://twitter.com/intent/follow?sc
 |![Meme](https://external-preview.redd.it/Ii1zae7tWgUklTi6eSE_7YHoENA4ngh5abWIEUrA_jU.png?width=640&crop=smart&auto=webp&s=528f29a6ce5b042bb0c827031d46fcfff60f59aa)|@PallaMohammad| N/A  |
 | ![Meme](https://www.thecoderpedia.com/wp-content/uploads/2020/06/Are-you-a-robot-Meme-1024x925.jpg?x80061) | @iamsajithk | Emotional |
 
+![Meme](https://user-images.githubusercontent.com/104122959/197356965-8a784fb2-552e-46db-8a60-8f7b21e74488.png) | @iamsajithk | We are not same. |
 
 <!-- Add your meme directly above this comment. -->
 
